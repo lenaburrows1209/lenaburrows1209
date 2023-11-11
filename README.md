@@ -1,3 +1,4 @@
+![3C019045-4F99-49FA-A52F-B85C22D72BAA](https://github.com/lenaburrows1209/lenaburrows1209/assets/150418797/1bc0fbd6-99be-4aa0-8c56-5a5f370ff350)
 - 👋 Hi, I’m @lenaburrows1209![A9C8465E-E30C-418D-BFAB-3FAB4FC012A6](https://github.com/lenaburrows1209/lenaburrows1209/assets/150418797/8a883c40-ad8b-4e21-a5cf-7440b6b89a7e)
 ![A825516D-63BA-4EC2-842B-8B23BD44876C](https://github.com/lenaburrows1209/lenaburrows1209/assets/150418797/e17ed87d-98d2-4493-b07b-9fe14eb49554)
 
